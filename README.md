@@ -1,3 +1,3 @@
 # JADE0072ETH
 NAIK
-EXMKULTRATRACE
+Close Cover, Strike Gently
